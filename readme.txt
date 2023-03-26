@@ -7,3 +7,5 @@ huangyangyang sheng bing le bu qu kan, sha bi yi yang。
 qu ce suo le, ban ge duo xiao shi hai mei chu lai bu xiao de zai gan sha。
 
 chao le you he hao。
+
+sha bi pian wo pao guo lai pao guo qu。
